@@ -3,4 +3,4 @@
 
 Btw lu ngemtod 
 
-- Jangan Lupa kasih bintang ya kak
+- Jangan Lupa ikuti ya kak :)
